@@ -1,2 +1,2 @@
 # killonstar.github.io
-Privacy policy Fuel Calc
+[Click privacy policy OrlPoles](https://killonstar.github.io/privacy_policy_orlpoles.html)
